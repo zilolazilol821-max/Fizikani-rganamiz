@@ -1,0 +1,2 @@
+# Fizikani-rganamiz
+Fizikani òrganamiz
